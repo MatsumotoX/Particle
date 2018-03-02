@@ -1,1 +1,1 @@
-# Particle Theme buy from CryptovationX
+# Particle Theme buy by CryptovationX
